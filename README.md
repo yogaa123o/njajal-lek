@@ -1,0 +1,2 @@
+# njajal-lek
+kereaktif
